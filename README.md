@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- I'm Ehsan Mojab
+- I'm Ehsan
